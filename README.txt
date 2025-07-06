@@ -1,1 +1,1 @@
-If not optimize, contact IG: miyxotkem
+contact IG: miyxotkem for more info
